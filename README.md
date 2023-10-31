@@ -1,4 +1,4 @@
-### Hi there, I'm Darts 😊
+**Hi there, I'm Darts** 😊
 
 I'm a maxed 50 Attack/1 Defence/1 Prayer pure. I'm mainly an Old School Runescape player, but I also enjoy Runescape 3. I've been playing Runescape for nearly 20 years now.
 
